@@ -1,6 +1,8 @@
 ## HELLO
 ![Wizardmon is actually my favorite....](https://i.imgur.com/27SSbFG.jpeg)
 Username stands for Zedmon but cooler because it was taken, but you can call me **Zed**
+
+
 **Pronouns:** he/him (it/its or ze/ze is OK)
 
 <!--
