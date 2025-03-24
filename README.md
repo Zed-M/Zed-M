@@ -1,4 +1,7 @@
-## Hi there 👋
+## HELLO
+![Wizardmon is actually my favorite....](https://i.imgur.com/27SSbFG.jpeg)
+Username stands for Zedmon but cooler, but you can call me **Zed**
+**Pronouns:** he/him (it/its or ze/ze is OK)
 
 <!--
 **Zed-M/Zed-M** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
